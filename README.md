@@ -2,13 +2,13 @@
 
 Hello everyone, this text will have serious things.
 
-Some of you might know im kazii's cousin, he gifted me everything he had, roblox acc, google acc, **everything**.
+Some of you might know im kazii's cousin, im 19 years old, he gifted me everything he had, roblox acc, google acc, **everything**.
 
 I was confused, but grateful for the things he gifted me.
 
 He also had a very hard life, and he couldnt continue.
 
-Sadly, he ***k1//€d*** himself.
+Sadly, he ***k1//€d*** himself, he was **Young**
 
 No, this is not a joke, im being serious.
 
